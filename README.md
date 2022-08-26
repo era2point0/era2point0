@@ -1,3 +1,3 @@
 I'm era
 
-Discord: Era 2.0#0002
+Discord: Era 2.0#6240
